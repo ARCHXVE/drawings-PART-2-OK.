@@ -16,9 +16,8 @@ his skin is blu its just the saturation im crne
 
 
 
-<img width="1289" height="1502" alt="Untitled302_20260602155927~2" src="https://github.com/user-attachments/assets/f07a4be4-aef7-43ac-ae34-c7874c3e268e" />
+<img width="2048" height="2048" alt="Untitled311_20260605085835" src="https://github.com/user-attachments/assets/a8e64b73-ca86-4c02-a76b-d61834f33080" />
 
 
 
-
-YUE FINALLY YUE
+im sorry angie I can't lock in
