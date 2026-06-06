@@ -21,3 +21,14 @@ his skin is blu its just the saturation im crne
 
 
 im sorry angie I can't lock in
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled317_20260606132616 (1)" src="https://github.com/user-attachments/assets/4ca14974-e01b-4eb8-af42-07b5b65937c5" />
+
+^ lady focalor...kisses my screen
+
+me when I don't feel like drawing female anatomy? cover it with long hair.
+
