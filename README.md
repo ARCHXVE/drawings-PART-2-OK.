@@ -32,3 +32,18 @@ im sorry angie I can't lock in
 
 me when I don't feel like drawing female anatomy? cover it with long hair.
 
+
+
+
+
+
+
+
+<img width="1631" height="1320" alt="Screenshot_20260608-184041~2" src="https://github.com/user-attachments/assets/9ed88c43-096e-4009-9dd4-603633ca8b31" />
+
+
+
+
+matthias redesign YO?
+
+
