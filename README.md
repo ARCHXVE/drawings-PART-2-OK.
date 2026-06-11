@@ -58,3 +58,17 @@ matthias redesign YO?
 
 esther after literally slacking off and avoiding drawing her
 
+
+
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled342_20260611165052" src="https://github.com/user-attachments/assets/be1ea40e-2155-4910-a30e-9de1403bbfa4" />
+
+
+
+
+
+kinda requested by oomf RY GO SERVE WLAY KING GAURRRRR~~~👄👄 ok im sorry 
