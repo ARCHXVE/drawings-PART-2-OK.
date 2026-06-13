@@ -87,3 +87,18 @@ kinda requested by oomf RY GO SERVE sLAY KING GAURRRRR~~ ok im sorry
 
 
 i love making interactive drawings tho
+
+
+
+
+<img width="2048" height="2048" alt="Untitled356_20260613224602" src="https://github.com/user-attachments/assets/96d7f8ee-b88e-491f-a837-02bb1abcd531" />
+
+
+
+
+THE HEIGHT DIFFERENCE IM SOBBING
+
+
+
+
++ please do NOT ship them, they're biological siblings.
