@@ -102,3 +102,22 @@ THE HEIGHT DIFFERENCE IM SOBBING
 
 
 + please do NOT ship them, they're biological siblings.
+
+
+
+
+
+
+
+
+
+
+
+
+<img width="2048" height="2048" alt="Untitled362_20260615202735" src="https://github.com/user-attachments/assets/7b9d1583-1abc-4787-bd99-cd31e4205919" />
+
+
+
+
+
+DAMN WHAT. 
