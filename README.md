@@ -111,7 +111,8 @@ THE HEIGHT DIFFERENCE IM SOBBING
 
 
 
-<img width="2043" height="1156" alt="Untitled367_20260616123708 (1)" src="https://github.com/user-attachments/assets/12043c74-a22f-4849-9fc9-364a3146f024" />
+<img width="2048" height="1136" alt="Untitled367_20260616124804 (1)" src="https://github.com/user-attachments/assets/3fc99665-89a0-422e-ab5d-d63061c6e193" />
+
 
 
 
