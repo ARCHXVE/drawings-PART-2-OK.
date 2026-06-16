@@ -114,10 +114,9 @@ THE HEIGHT DIFFERENCE IM SOBBING
 
 
 
-<img width="2048" height="2048" alt="Untitled362_20260615202735" src="https://github.com/user-attachments/assets/7b9d1583-1abc-4787-bd99-cd31e4205919" />
+<img width="2048" height="2048" alt="Untitled366_20260616083435" src="https://github.com/user-attachments/assets/2cbb0ce6-1fe7-437a-b634-0593164a9371" />
 
 
 
 
-
-DAMN WHAT. 
+oh my god bro stop requesting freaky things
