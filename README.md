@@ -182,3 +182,13 @@ v    -----    not my oc
 
 
 Nobody knows that i secretly love Christian M. Holts. i love Christian M. Holts.
+
+
+
+
+<img width="2048" height="2048" alt="Untitled409_20260621120714" src="https://github.com/user-attachments/assets/b713b789-6d4b-4726-abca-4fbd1e59e4ee" />
+
+
+
+
+cyrus...drool
