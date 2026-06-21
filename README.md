@@ -169,3 +169,16 @@ Hey i would throw a book at my fine shyt's face too if i saw him sitting like th
 
 
 zisel because shes my favourite school oc. yikes new artstyle 
+
+
+
+
+
+v    -----    not my oc
+
+
+<img width="2048" height="2048" alt="Untitled406_20260621085828" src="https://github.com/user-attachments/assets/fb5c2b16-8b87-45ee-9bdd-6e762766b036" />
+
+
+
+Nobody knows that i secretly love Christian M. Holts. i love Christian M. Holts.
