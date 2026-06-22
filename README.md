@@ -193,3 +193,17 @@ Nobody knows that i secretly love Christian M. Holts. i love Christian M. Holts.
 
 
 mmmmm ok
+
+
+
+
+
+
+
+<img width="2048" height="1536" alt="Untitled419_20260622214024" src="https://github.com/user-attachments/assets/ea1f2c27-93c9-4153-8a68-3c022dca41b1" />
+
+
+
+
+
+aww its ok lucien u look...cute.
