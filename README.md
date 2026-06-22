@@ -186,9 +186,10 @@ Nobody knows that i secretly love Christian M. Holts. i love Christian M. Holts.
 
 
 
-<img width="2048" height="2048" alt="Untitled409_20260621120714" src="https://github.com/user-attachments/assets/b713b789-6d4b-4726-abca-4fbd1e59e4ee" />
+<img width="2048" height="2048" alt="Untitled415_20260622162816" src="https://github.com/user-attachments/assets/c9470b9b-3b91-4281-a825-a86d1f11d92c" />
 
 
 
 
-cyrus...drool
+
+mmmmm ok
