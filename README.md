@@ -47,13 +47,6 @@ Nobody knows that i secretly love Christian M. Holts. i love Christian M. Holts.
 
 
 
-<img width="2048" height="2048" alt="Untitled415_20260622162816" src="https://github.com/user-attachments/assets/c9470b9b-3b91-4281-a825-a86d1f11d92c" />
-
-
-
-
-
-mmmmm ok
 
 
 
@@ -61,34 +54,14 @@ mmmmm ok
 
 
 
-<img width="2048" height="1536" alt="Untitled419_20260622214024" src="https://github.com/user-attachments/assets/ea1f2c27-93c9-4153-8a68-3c022dca41b1" />
 
 
 
 
 
-aww its ok lucien u look...cute.
+<img width="2048" height="2048" alt="Untitled477_20260701141847" src="https://github.com/user-attachments/assets/ff90088a-79b9-4754-a54c-b7b1b3566622" />
 
 
 
 
-
-
-
-<img width="2048" height="2048" alt="Untitled449_20260625213109" src="https://github.com/user-attachments/assets/03951d76-afe3-41ae-85f5-7091303b3c3b" />
-
-
-
-oh my god
-
-
-
-
-<img width="640" height="640" alt="Untitled461_20260627163426" src="https://github.com/user-attachments/assets/31627661-65dd-4642-b589-bb9e0771f60e" />
-
-
-
-
-
-
-i love whiteboard fox.
+frederick....drools
